@@ -1,1 +1,0 @@
-# okrutnik.github.io
